@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mariiazinhaa
-- 👀 I’m interested in neurocirurgia
+- 👀 I’m interested in neurocirurgia,engenharia,direito,arquitetura
 - 🌱 I’m currently learning programar
 - 📫 gosto de ler 
 <!---
